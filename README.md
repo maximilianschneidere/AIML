@@ -113,8 +113,7 @@ Have ideas or suggestions? Feel free to contribute!
 ## 📬 Contact
 
 Have questions? Feel free to reach out:
-- Email: maximilianschneidere@example.com
-- LinkedIn: [Your LinkedIn](https://linkedin.com)
+- Email: maximilianschneidere@privatemail.com
 
 ---
 
